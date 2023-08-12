@@ -1,1 +1,1 @@
-Learning computer programming (probably will update this in the future for now it's not very important)
+Learning computer programming (probably will update this in the future for now it's not very important). I wiggle my feet back and forth and giggle like a little girl when I see green on my commit chart
