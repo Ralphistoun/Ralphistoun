@@ -1,1 +1,1 @@
-my goal is to make something of my own that I am proud of
+I want my repository chart to be more green than the "Commit changes..." button
