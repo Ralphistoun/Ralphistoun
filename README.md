@@ -1,12 +1,6 @@
 ## Hi there 👋
-I'm just a random dude  who likes programming and watching anime.
+I'm Ralphistoun I like programming and wworking out.
 
-If you want to contact me, use [Discord (Ralphistoun)](discord.com/users/1094364652869263550).\
-Pretty sure my dm's are open and I love networking and talking to new people.
-
-
-[![Github stats](https://readme-stats.clckblog.space/api?username=Ralphistoun&show_icons=true&bg_color=00000000&theme=dark&hide_border=true&count_private=true)](https://github.com/anuraghazra/github-readme-stats)
-[![Top Langs](https://readme-stats.clckblog.space/api/top-langs/?username=Ralphistoun&exclude_repo=DesktopMagic&bg_color=00000000&theme=dark&hide_border=true)](https://github.com/anuraghazra/github-readme-stats)
-<br>
-
-
+If you want to contact me, send me a friend request on discord my username is "Ralphistoun"
+pretty sure my dm's are open if not just send me a friend request,
+and I will get back to you, I love networking and talking to new people
