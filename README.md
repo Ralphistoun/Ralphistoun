@@ -1,7 +1,7 @@
 ## Hi there 👋
 I'm just a random dude  who likes programming and watching anime.
 
-If you want to contact me, use [Discord (Ralphistoun)](discordapp.com/users/1094364652869263550).\
+If you want to contact me, use [Discord (Ralphistoun)](discord.com/users/1094364652869263550).\
 Pretty sure my dm's are open and I love networking and talking to new people.
 
 
