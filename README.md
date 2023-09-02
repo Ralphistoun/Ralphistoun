@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hello there 👋
 I'm Ralphistoun I like programming and wworking out.
 
 If you want to contact me, send me a friend request on discord my username is "Ralphistoun"
