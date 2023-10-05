@@ -1,5 +1,5 @@
 ## Hello there 👋
-I'm Ralphistoun I like programming and wworking out.
+I'm Ralphistoun I like programming and working out.
 
 If you want to contact me, send me a friend request on discord my username is "Ralphistoun"
 now I'm pretty sure my dm's are open if not just send me a friend request,
